@@ -1,0 +1,15 @@
+Pamiętam jak liceum byłem wielkim fanem Jarka Jakimowicza. Oglądałem młode wilki chyba ze sto razy. Cały pokój miałem w jego plakatach. Chciałem być taki jak on, wyglądać jak on i mówić jak on.
+Pewnego dnia zobaczyłem go jak jadł hamburgera w jednym z warszawskich maków. Wyrwałem kartkę z zeszytu i podszedłem do niego. Dukając poprosiłem o autograf, a on odwrócił się, popatrzył na mnie i żując bułkę odpowiedział tylko: "a weś spierdalaj".
+
+W tym momencie coś we mnie pękło. Wróciłem do domu, porwałem wszystkie plakaty tego zjeba i usunałem konta na wszystkich forach jakimonators. Zacząłem czytać biznesforum, bo moim jedynym celem było ujebanie go. Chciałem, żeby każdy się śmiał z niego, żeby stracił cały szacunek, a do tego potrzebowałem pieniędzy, dużych pieniędzy.
+
+Tej samej nocy poszedłem na osiedlowy parking strzeżony, cieć jak zwykle spał. Dzięki poradnikom z ruskich stron potrafiłem wyciąć katalizator w pięć minut. Byłem w tym coraz lepszy, nawet miałem specjalną piłkę do wycinania. Z czasem zacząłem werbować osiedlowych sebków, którzy wycinali je dla mnie. W końcu kupiłem kawałek placu i otworzyłem skup. Dzięki temu pół województwa wycinało katalizatory sąsiadom dla mnie, ja im płaciłem po kilka stów i byłem kryty. Obroty rosły, aż w końcu generowaliśmy trzy miliony zysku przy czterdziestu milionach obrotów.
+
+Wtedy stwierdziłem, że to już pora. Wynająłem detektywa, który namierzył Jakimowicza. Po kliku dniach wiedziałem, że wynajmuje ludziom mieszkania bez płacenia podatków. Krótki donos do urzędu skarbowego wystarczył, żeby po kilku tygodniach zaczęło się konkretne trzepanko finansów tego buca. Wychodziło coraz więcej spraw i pan Jarek miał zapłacić ponad pół dużej bańki zaległych podatków, do tego kary i odsetki. Jednym słowem był w niezłej dupie.
+
+Wtedy w jego życiu pojawiam się ja. Proponuję mu 500 tys. zł za zostanie twarzą mojej firmy. Odmawia, "bo on jest wielkim aktorem, a to jest uwłaczające". Jeszcze, kurwa, zobaczymy. Wychodzę ze spotkania. Kolejny donos opisujący łamanie ugody z fiskusem sprawia, że rozłożenie na raty przestało obowiązywać. Chuj bombki strzelił. Następnego dnia Jarek dzwoni, że jednak on to bardzo chce zostać twarzą skupu katalizatorów. Tylko, że teraz oferta to marne 200 tys., Jarek rzuca słuchawką. Po chwili telefon dzwoni, aż trzy minuty zajęło mu zdanie sobie sprawy w jak głębokiej dupie się znajduje. Kolejnego dnia podpisujemy umowę. W ciągu trzech miesięcy jego morda znajduje na co trzecim autobusie i co czwartym bilbordzie w Polsce polecając SKUP KATALIZATORÓW.
+Ludzie się z niego śmieją i wytykają palcami. Skupu nie mam już od ponad trzech lat, a mimo to cały czas przedłużam umowy reklamowe. Ten gamoń podpisał umowę na pięćdziesiąt lat z możliwością aktualizacji wizerunku.
+
+Właśnie siedzę w maku przy krajowej siódemce i patrzę na bilbord skupu katalizatorów z Jarkiem Jakimowiczem. Aktor ma wymalowanego kutasa na czole. Jestem szczęśliwy, jedyne czego żałuję to, że nie otworzyłem kliniki aborcyjnej albo innego zakładu utylizacji martwych psów.
+
+https://www.wykop.pl/link/4980049/#comment-66056723
